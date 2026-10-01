@@ -1,3 +1,3 @@
-Mohamed-Amine Boudhib \n
-Amin Helali \n
+Mohamed-Amine Boudhib  
+Amin Helali  
 Nael Turlure
